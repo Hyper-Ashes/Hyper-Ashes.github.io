@@ -1,4 +1,4 @@
-！[]（image.jpg）
+！[]（cover.jpg）
 #Personal Profile
 ##I'm just a student, this is an English document, I'll write a Chinese one later.（But not now.）
 
